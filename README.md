@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 do u have MInecraft bedrock
 
 <!--
 **ezr64/ezr64** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
